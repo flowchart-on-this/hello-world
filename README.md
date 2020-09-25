@@ -1,2 +1,2 @@
 # hello-world
-A convenient way to introduce oneself to oneself (and anyone else that may be interested enough to investigate)
+Introductions are in order, as a way to honor those who established the traditions we continue.
